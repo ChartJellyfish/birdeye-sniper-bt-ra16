@@ -1,4 +1,4 @@
-# 
+# professional bot de arbitragem MEV plugins é o melhor bot de arbitragem MEV plugins com compra automática e detecção de honeypots. Seguro, confiável e otimizado para estratégias
 
 
 
